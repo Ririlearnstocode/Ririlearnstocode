@@ -5,7 +5,7 @@
 - 📫 You can reach me through my Email ID which is - riya432010@gmail.com
 - - 😄 Pronouns: She/Her
 - ⚡ Fun fact: I love learning new things and I'm always open to suggestions for improvements :)
-- I love working with people. 
+- I love working with people,looking forward to work on a fun project with you :) Feel free to reach out. 
 
 <!---
 Ririlearnstocode/Ririlearnstocode is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
